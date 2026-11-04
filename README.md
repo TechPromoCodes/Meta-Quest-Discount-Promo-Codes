@@ -18,7 +18,7 @@ Buying a brand-new **Meta Quest 3** or **Meta Quest 3S**? Promo code **`TTTT`** 
   <img src="images/Extra-Quest-Cash-Meta-Credit-With-New-Quest-3-Using-TTTT.gif" alt="Tutorial For $30 in Quest Cash With A New Quest 3 Or 3S Using Meta Promo Code TTTT">
 </p>
 
-That means you can start your new headset with more credit for VR experiences—perfect for building your first Quest library.
+That means you can start your new headset with more credit for VR experiences perfect for building your first Quest library.
 
 ## ⏳ Extra Limited-Time Offers
 
