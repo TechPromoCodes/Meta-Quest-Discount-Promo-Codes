@@ -19,3 +19,8 @@ Buying a brand-new **Meta Quest 3** or **Meta Quest 3S**? Promo code **`TTTT`** 
 </p>
 
 That means you can start your new headset with more credit for VR experiences—perfect for building your first Quest library.
+
+## ⏳ Extra Limited-Time Offers
+
+**LIVE TILL NOV 8** 🟢 -  [Meta Glasses Sale](https://metacreator.pxf.io/6k9QbG) – Get $40 Off Meta Glasses From Oct 19 to Nov 8 [US Only 🇺🇸]
+
